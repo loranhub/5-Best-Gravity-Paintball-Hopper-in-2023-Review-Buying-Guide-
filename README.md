@@ -1,0 +1,2 @@
+# 5-Best-Gravity-Paintball-Hopper-in-2023-Review-Buying-Guide-
+All hoppers underwent a standard drop test at 90% – 95% capacity and at 50% capacity 5 times. I then took the capacity and divided by the average time it took for the hopper to empty to give me my average feed rate in Balls Per Second (BPS) for each hopper. I was using Valken Graffiti Paintballs that were measuring in at 0.689 diameter at its widest point. Here URL: https://goodozen.com/best-gravity-paintball-hopper/
